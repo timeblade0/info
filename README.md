@@ -1,6 +1,7 @@
 # Hiking and Nature
 https://landtrustnal.org/events/  
-https://www.meetup.com/huntsville-outdoor-adventures/events/  
+https://www.meetup.com/huntsville-outdoor-lovers-meetup-group/events/calendar/  
+https://www.meetup.com/huntsville-outdoor-club-south/events/calendar/  
 
 # Social
 https://www.facebook.com/groups/HSVyp/events  
